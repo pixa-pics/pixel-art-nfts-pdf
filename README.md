@@ -3,7 +3,7 @@
 Watch on youtube our trailer:
 ![[](https://www.youtube.com/watch?v=b_13Ba5DmXM)](https://github.com/pixa-pics/pixel-art-nfts-pdf/blob/main/SCREENSHOT_EBOOK.png?raw=true)
 
-Website: https://www.ebook-nft-pixel.art/ (EN / FR / DE / PT / SPA / SWE /IT )
+Website: https://www.ebook-nft-pixel.art/ (EN / FR / DE / PT / SPA / SWE / IT )
 
 In this “**ultimate handbook,**” you'll also discover the unique potential of NFTs as a tool for digital ownership and monetization. With its cutting-edge technology and decentralized infrastructure, the world of NFTs is changing the game for artists, collectors, and investors alike. By creating your own NFTs and selling them on the blockchain, you can secure the ownership of your work and reach a wider audience than ever before.
 
