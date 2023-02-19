@@ -1,7 +1,10 @@
-# Harness the Force of Pixel Art and NFTs.pdf
+# Unleashing the Power and Potential of Pixel Art and NFTs: Your New Free Guide
 
-[![](https://github.com/pixa-pics/pixel-art-nfts-pdf/blob/main/SCREENSHOT_EBOOK.png?update=1)](https://www.youtube.com/watch?v=Lgu3t8PIq1A)
+ * Trailer: https://www.youtube.com/watch?v=b_13Ba5DmXM
+ * Website: https://www.ebook-nft-pixel.art/ (EN / FR / DE / PT / SPA / SWE /IT )
 
-"PIXEL ART & NFTs: Unlocking their Power and Potential!," is a comprehensive and free guide to unlocking your full potential in the world of pixel art and NFTs. It covers everything from creating stunning pixel art to showcasing your work and monetizing your NFTs. With expert insights, tutorials, and step-by-step guides, this book is a road-map to success in the exciting world of pixel art and NFTs. Whether you're a beginner or an experienced artist, harness your forces and unleash your potential today with our well-documented guide.
+In this “**ultimate handbook,**” you'll also discover the unique potential of NFTs as a tool for digital ownership and monetization. With its cutting-edge technology and decentralized infrastructure, the world of NFTs is changing the game for artists, collectors, and investors alike. By creating your own NFTs and selling them on the blockchain, you can secure the ownership of your work and reach a wider audience than ever before.
 
-> "PIXEL ART & NFTs: Unlocking their Power and Potential!" is a comprehensive ebook that explores the exciting world of pixel art and NFTs. This guide provides you with all the knowledge and tools you need to harness the power of pixel art and NFTs to unleash your potential as an artist or collector. From understanding the basics of pixel art and NFTs to mastering advanced techniques, this ebook covers it all. You'll learn about the best practices for creating and selling pixel art NFTs, as well as tips for collecting and investing in NFTs. This guide is designed for anyone who wants to take their pixel art and NFTs to the next level, whether you're a seasoned artist or just starting out. So if you want to unlock your potential and become a force to be reckoned with in the world of pixel art and NFTs, get your copy of "HARNESS The FORCE Of PIXEL ART & NFTs - An In-Depth Guide Making Your Potential Powerful yet Possible" today!"
+> This guide is more than just a collection of tips and tricks – it's a road-map for success in the world of pixel art and NFTs. So what are you waiting for? Harness the force of pixel art NFTs and unleash your potential today!
+
+**Whether you're looking to monetize your artwork, build a following, or just get your work out there, it will provide you with the guidance and inspiration you need to succeed.**
